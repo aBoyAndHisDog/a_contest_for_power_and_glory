@@ -1,0 +1,1 @@
+# a_contest_for_power_and_glory
